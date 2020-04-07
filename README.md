@@ -1,4 +1,5 @@
-# rrg2
+# rrg
+# DO NOT VISIT THE RRG UNTIL BAN IS LIFTED
 
 ## Popular arches of the Red River Gorge, Kentucky
 
